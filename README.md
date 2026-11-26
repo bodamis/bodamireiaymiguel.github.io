@@ -1,2 +1,2 @@
-# bodamireiaymiguel.github.io
+# bodamis.github.io
 Boda Mireia y Miguel
